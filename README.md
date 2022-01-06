@@ -45,3 +45,8 @@ quick food:
 - tristeza, pannierstraße, cheaper bar but still nice with kicker
 - soulcat, pannierstraße, often has some dj playing music (no techno)
 generally along weserstraße (coming from Reuterstraße) there are many more
+
+# Cinemas
+- Moviemento Kino, kottbusser damm, in operation since 1907 one of the oldest Cinemas in Berlin and Germany, lots of independent movies and smaller Festivals (including a porn film festival once a year)
+- IL Kino, nansenstraße, have not been yet, also a smaller independent cinema
+- Rollberg Kinos, Rollbergstraße, larger cinema with more mainstream movies
