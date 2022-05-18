@@ -44,6 +44,9 @@ quick food:
 - vater, reuterstraße, nice bar with lots of wax candles
 - tristeza, pannierstraße, cheaper bar but still nice with kicker
 - soulcat, pannierstraße, often has some dj playing music (no techno)
+- Monarch, kottbusser tor, bar with dj in the first floor, usually costs entry (~6 euro), but very nice view over kottbusser tor and the ubahn. Entrance somewhat hard to find (look for a door with the logo above and go up the stairs)
+- Klunkerkranich, on top of neukölln arkaden (just take the elevator to the 5 or 6th floor and go further up). amazing for sunsets, also have beers and dj with music, costs entry ~5 euro. Arrive early if the weather is nice it will be crowded. Closes around midnight.
+- Berliner Berg Brauerei, Treptower str., brewery with local beers from neukölln (I really like them). Nice to sit outside.
 generally along weserstraße (coming from Reuterstraße) there are many more
 
 # Cinemas
