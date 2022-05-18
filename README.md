@@ -41,7 +41,7 @@ quick food:
 - fuchsbau, planufer, have a nice outside area
 - bierhaus urban, Urbanstraße, typical berlin bar, also never closes, jam sessions tuesday (jazz) and thursday (blues)
 - sandmann, reuterstraße, similar to bierhaus urban, jam sessions monday (blues) 
-- vater, reuterstraße, nice bar with lots of wax candles
+- vater, reuterstraße, nice bar with an impressive amount of wax candles
 - tristeza, pannierstraße, cheaper bar but still nice with kicker
 - soulcat, pannierstraße, often has some dj playing music (no techno)
 - Monarch, kottbusser tor, bar with dj in the first floor, usually costs entry (~6 euro), but very nice view over kottbusser tor and the ubahn. Entrance somewhat hard to find (look for a door with the logo above and go up the stairs)
