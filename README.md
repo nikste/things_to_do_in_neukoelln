@@ -10,7 +10,7 @@
 - cocolo ramen, graefestraße, nice ramen 
 - kotti dang, lenaustraße: vietnamese, make their own noodles
 - chez dang, friedelstraße: laotian food, good food friendly staff
-- chelany, friedelstraße: rather cheap but still nice pakistani food 
+- chelany, friedelstraße: rather cheap but still nice pakistani food (approved by some indian friends of mine), my personal favorite is "Lamm Korma".
 - tuesday and friday there is a market on maybachufer, they also have some rather exotic food stands.
 quick food:
 - reichenburger, reichenberger straße, not too bad burgers 
