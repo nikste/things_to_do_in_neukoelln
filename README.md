@@ -1,5 +1,6 @@
 # Restaurants:
 ## In walking distance:
+- lalibela, ohlauer str: Ethiopian restaurant
 - ssam, kottbusser damm: korean bbq, rather expensive
 - mardi, kottbusser damm: Decent turkish restaurant
 - kissho sushi, graefestraße: decent vietnamese + sushi place
